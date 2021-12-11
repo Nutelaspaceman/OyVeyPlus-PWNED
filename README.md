@@ -5,6 +5,8 @@ Smoked! Get fucked skidders
 
 LOL ASS SECURITY
 
-BigJMuffin who?
+BigJMuffin who? 
 
 Thanks to: Vertent, Gonk and Sushigang for getting the client
+![2021-11-13_11](https://user-images.githubusercontent.com/79189729/145679303-0738bec3-8193-4439-97ab-4316b3b5d2f1.png)
+SushiHack-Phobos_Edition 1.0.2 guy mm
